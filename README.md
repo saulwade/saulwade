@@ -60,7 +60,7 @@ Building products for LATAM · Experience in startups and enterprise (Schneider 
 
 - **Email:** saulwade29@gmail.com
 - **LinkedIn:** [saulwadesilva](https://linkedin.com/in/saulwadesilva)
-- **Open to:** partnerships in LATAM, co-founder opportunities, technical discussions
+- **Open to:** partnerships WorldWide, co-founder opportunities, technical discussions
 
 ---
 
